@@ -19,6 +19,8 @@ glutationa - ???
 
 Resveratol - 1 capsule of 500mg per day
 
+Colostrum - 1 capsule 500mg per day
+
 C vitamin - Two lemon per day
 
 
