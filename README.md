@@ -1,4 +1,4 @@
-# anti-aging_studies
+# Anti-aging_studies
 Anti-aging tests,  *please don't try follow this recipe...*
 I don't have empirical results about this study...
 
@@ -54,6 +54,8 @@ carthamus oil - 500mg day
 Arginine - oxid nitric - make vascularization -  at training day 500mg
 
 Maca - 500mg - at training day 
+
+HGH/ZMA - 2000mg at day
 
 # Calisthenic program 
 I follow frank Medrano routines...
