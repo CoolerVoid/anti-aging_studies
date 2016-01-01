@@ -62,7 +62,12 @@ I follow frank Medrano routines...
 
 #References:
 
+http://greenray4ever.com/
+
+https://med.stanford.edu/news/all-news/2015/01/telomere-extension-turns-back-aging-clock-in-cultured-cells.html
+
 http://joshmitteldorf.scienceblog.com/
 
 http://undergroundhealthreporter.com/
 
+http://www.anti-agingfirewalls.com/
