@@ -47,8 +47,6 @@ Creatine monohydrate
 
 Vitamin D3
 
-Ubiquinona
-
 carthamus oil - 500mg day
 
 
