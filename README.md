@@ -5,7 +5,7 @@ I don't have empirical results about this study...
 # Telomerase 
 - https://en.wikipedia.org/wiki/Telomerase
 
-Astragalus extract  - one capsule of 33mg every day (in my last test capsules of 500mg, return injuries... now i try 33mg)
+Astragalus extract  - one capsule of 33mg every day (in my last tests with  capsules of 500mg, return injuries at my skin... now i try 33mg)
 
 L-carnitine 1000mg - every day
 
