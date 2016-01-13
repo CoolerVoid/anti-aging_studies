@@ -23,6 +23,8 @@ Colostrum - 1 capsule 500mg per day
 
 C vitamin - Two lemon per day
 
+Ginkgo Biloba - 120mg per day
+
 
 # Mitochondria 
 - https://en.wikipedia.org/wiki/Mitochondrion
