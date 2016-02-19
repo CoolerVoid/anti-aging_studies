@@ -11,7 +11,7 @@ L-carnitine 1000mg - every day
 
 Glutamina - 6g - every day
 
-Coenzyme Q10 - 2 capsules 100mg
+Coenzyme Q10 - 1 capsule 100mg
 
 Milk thistle (silymarin) - 200mg per day  OR  
 
@@ -31,11 +31,11 @@ Ginkgo Biloba - 120mg per day
 
 Acetyl L-carnitine - ???
 
-ALpha lipoic acid - 300mg each three days
+ALpha lipoic acid - 600mg per day
 
 B-vitamin
 
-Folic acid (peanut ?)
+Folic acid - 500mg per day
 
 Calcium 
 
@@ -50,6 +50,8 @@ Creatine monohydrate
 Vitamin D3
 
 carthamus oil - 500mg day
+
+Biotin -
 
 
 # Testosterone Boost
