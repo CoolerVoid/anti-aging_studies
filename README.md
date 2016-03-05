@@ -11,17 +11,13 @@ L-carnitine 1000mg - every day
 
 Glutamina - 6g - every day
 
-Coenzyme Q10 - 1 capsule 100mg
+Coenzyme Q10 - 1 capsule 25mg
 
 Milk thistle (silymarin) - 200mg per day  OR  
 
-glutationa - ???
-
-Resveratol - 1 capsule of 500mg per day
+Resveratol - 2 capsule of 500mg per day
 
 Colostrum - 1 capsule 500mg per day
-
-C vitamin - Two lemon per day
 
 Ginkgo Biloba - 120mg per day
 
@@ -29,21 +25,15 @@ Ginkgo Biloba - 120mg per day
 # Mitochondria 
 - https://en.wikipedia.org/wiki/Mitochondrion
 
-Acetyl L-carnitine - ???
+Acetyl L-carnitine - ??? (i don't use..)
 
-ALpha lipoic acid - 600mg per day
+ALpha lipoic acid - 600mg per day / two capsules of 300mg
 
 B-vitamin
 
-Folic acid - 500mg per day
-
-Calcium 
+Folic acid - 500mg per dayre
 
 Magnesium
-
-Cinamon
-
-Green and black tea
 
 Creatine monohydrate
 
