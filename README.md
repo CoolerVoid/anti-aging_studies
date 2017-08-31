@@ -51,6 +51,16 @@ Maca - 500mg - at training day
 
 HGH/ZMA - 2000mg at day
 
+# anti-hair loss
+*Don't get nothing that causes upside in DHT(removes creatine, ashwagadha, tribulus, ginseng...)
+Saw palmetto - 2capsules per day 450mg
+Pumpkim oil - 1 capsules per day 1000mg
+Biotin - 2 capsule per day 10000mcg
+Ginkgo Biloba - 1 capsule per day 30mg
+Coezime Q10 - 1 capsule per day 100mg
+Alpha lipoic acid - 1 capsule per day 300mg
+Acetyl l carnitine - 1 capsule per day 500mg
+
 # Calisthenic program 
 I follow frank Medrano routines...
 
