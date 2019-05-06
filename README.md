@@ -12,7 +12,7 @@ Pumpkin protein 40g by day
 
 Kelp 1 capsule 150mcg day
 
-Glutamin - 4g - every day
+Glutamine - 4g - every day
 
 Turmeric+ACV+lemon - ???
 
@@ -45,6 +45,13 @@ HGH/ZMA - 2000mg at day
 Pumpkim oil - 1 capsules per day 1000mg
 
 Skin colagen - 5mg
+
+
+# Macros
+
+90g protein day
+40g carb day
+70g fats day
 
 
 # Calisthenic program 
