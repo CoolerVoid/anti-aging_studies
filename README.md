@@ -5,43 +5,30 @@ I don't have empirical results about this study...
 # Telomerase 
 - https://en.wikipedia.org/wiki/Telomerase
 
-Astragalus extract  - one capsule of 33mg every day (in my last tests with  capsules of 500mg, return injuries at my skin... now i try 33mg)
 
-L-carnitine 1000mg - every day
+astaxanthin  - 4mg
 
-Glutamina - 6g - every day
+Pumpkin protein 40g by day
 
-Coenzyme Q10 - 1 capsule 25mg
+Kelp 1 capsule 150mcg day
 
-Milk thistle (silymarin) - 200mg per day  OR  
+Glutamin - 4g - every day
 
-Resveratol - 2 capsule of 500mg per day
-
-Colostrum - 1 capsule 500mg per day
-
-Ginkgo Biloba - 120mg per day
+Turmeric+ACV+lemon - ???
 
 
 # Mitochondria 
 - https://en.wikipedia.org/wiki/Mitochondrion
 
-Acetyl L-carnitine - ??? (i don't use..)
+Milk thistle (silymarin) - 200mg per day  OR  
 
-ALpha lipoic acid - 600mg per day / two capsules of 300mg
+Vitamin D3 10.000ui each two days
 
-B-vitamin
+MK7 K2 = 150mcg - 1 capsule by day
 
-Folic acid - 500mg per dayre
+Omega 3 - 2000mg
 
-Magnesium
-
-Creatine monohydrate
-
-Vitamin D3
-
-carthamus oil - 500mg day
-
-Biotin -
+Biotin - 1 capsule 5000mcg per week
 
 
 # Testosterone Boost
@@ -54,19 +41,10 @@ HGH/ZMA - 2000mg at day
 # anti-hair loss
 *Don't get nothing that causes upside in DHT(removes creatine, ashwagadha, tribulus, ginseng...)
 
-Saw palmetto - 2capsules per day 450mg
 
 Pumpkim oil - 1 capsules per day 1000mg
 
-Biotin - 2 capsule per day 10000mcg
-
-Ginkgo Biloba - 1 capsule per day 30mg
-
-Coezime Q10 - 1 capsule per day 100mg
-
-Alpha lipoic acid - 1 capsule per day 300mg
-
-Acetyl l carnitine - 1 capsule per day 500mg
+Skin colagen - 5mg
 
 
 # Calisthenic program 
