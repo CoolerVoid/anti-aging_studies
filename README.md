@@ -42,16 +42,17 @@ HGH/ZMA - 2000mg at day
 *Don't get nothing that causes upside in DHT(removes creatine, ashwagadha, tribulus, ginseng...)
 
 
-Pumpkim oil - 1 capsules per day 1000mg
+Pumpkin oil - 2 capsules per day 1000mg
 
 Skin colagen - 5mg
 
 
-# Macros
+# Macros per day
 
-90g protein day
-40g carb day
-70g fats day
+80g protein 
+40g carb 
+70g fats 
+2L water
 
 
 # Calisthenic program 
