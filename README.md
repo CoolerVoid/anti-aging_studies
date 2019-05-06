@@ -20,7 +20,7 @@ Turmeric+ACV+lemon - ???
 # Mitochondria 
 - https://en.wikipedia.org/wiki/Mitochondrion
 
-Milk thistle (silymarin) - 200mg per day  OR  
+Milk thistle (silymarin) - 200mg 
 
 Vitamin D3 10.000ui each two days
 
